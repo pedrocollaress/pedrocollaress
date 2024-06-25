@@ -1,5 +1,5 @@
 # 💫 About Me:
-Estudante de Sistemas de Informação<br>Aberto a novas experiências profissionais na área
+Estudante de Sistemas de Informação<br>
 
 
 ## 🌐 Socials:
